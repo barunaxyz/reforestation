@@ -1,3 +1,0 @@
-# Reforestation
-
-🌳 Reforestation
